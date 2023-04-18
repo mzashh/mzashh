@@ -1,3 +1,1 @@
 - I'm Zahid, I do electronics stuff.
-- 
-- 
