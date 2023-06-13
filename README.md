@@ -1,1 +1,1 @@
-- i'm Zahid and i mostly deal with electronics.
+- i'm Zahid and i mostly work with electronics.
