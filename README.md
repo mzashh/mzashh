@@ -1,1 +1,1 @@
-- mzashh, i mostly deal with microcontrollers, embedded systems and electronics in general.
+- i'm Zahid and i mostly deal with electronics.
